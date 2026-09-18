@@ -16,7 +16,7 @@
   <br>
 <p align="center">﹕ ꒰ა <a href="https://rentry.co/evisceration">rentry</a> ♱ <a href="https://rentry.co/deadbodies">kinlist</a> ♱ <a href="https://pronouns.cc/@imperial">pronouns.cc</a> ♱ <a href="https://www.pinterest.com/knostkrev/">pinterest</a> ﹒⟢</p>
 
-| it is i! your lord and savior, evisceration! you can call evi if we are friends. you are also allowed to address me as sailor. i am a non-human creature lurking in the depths of a forest, but you may also refer to me as a boy. im 16<sub>,000</sub> years old, i generally do not care how old you are as long as you are not older than 21 or younger than 13. i do prefer to keep friends who are in my age range, though. [14-18]. |
+| it is i! your lord and savior, evisceration! you can call evi if we are friends. you are also allowed to address me as evi or sailor. i am a non-human creature lurking in the depths of a forest, but you may also refer to me as a boy. im 16<sub>,000</sub> years old, i generally do not care how old you are as long as you are not older than 21 or younger than 13. i do prefer to keep friends who are in my age range, though. [14-18]. |
 |-------------------|
 
   <div align="center">
