@@ -23,7 +23,7 @@
 <img src="https://i.postimg.cc/Hs0mqkyB/Untitled230-20260517192955.png" width="600px" align="center">
   </div>
 
-| before you interact: i dislike keeping many friends and i will probably ghost you unless i find you interesting sorry lol. i also may unintentionally come off as dry or disinterested; that is not the case. i struggle with expressing myself through text, do not worry. i am always open to conversation but i will never seek it out. |
+| before you interact: i dislike keeping many friends and i will probably ghost you unless i find you interesting sorry lol. i also may unintentionally come off as dry or disinterested; that is not the case. i struggle with expressing myself through text, do not worry. i am always open to conversation but i will never seek it out. i have adhd & schizoidPD so i may come off as strange or be hard to talk to. |
 |-------------------|
 
 <div align="center">
