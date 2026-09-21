@@ -20,7 +20,7 @@
         IMPORTANT: i have <a href="https://www.mayoclinic.org/diseases-conditions/schizoid-personality-disorder/symptoms-causes/syc-20354414">ScPD</a>; i rarely will seek out interaction.<br>
         $\textsf{youre allowed to talk to me, but i probably wont ever call you a friend.}$<br>
         $\textsf{on ponytown once in a blue moon.}$<br>
-        <a href="https://rentry.co/evisceration">rentry</a> | <a href="https://rentry.co/doublebarrel">byi</a> | <a href="https://rentry.co/deadbodies">kinlist</a> | <a href="https://pronouns.cc/@imperial">pronouns.cc</a><br>
+        <a href="https://rentry.co/evisceration">rentry</a> | <a href="https://rentry.co/doublebarrel">byi</a> | <a href="https://rentry.co/deadbodies">kinlist</a> | <a href="https://pronouns.cc/@0_005">pronouns.cc</a><br>
         <br>
       </th>
   </table>
