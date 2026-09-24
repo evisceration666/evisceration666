@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <sub>best viewed in light mode.</sub>
+  <sub>$\color{#ffffff}{best viewed in light mode.}$</sub>
 </p>
 
 <div align="center">
@@ -12,23 +12,20 @@
     <tr align="center"></tr>
       <th>
            <br>  
-          <img src="https://i.postimg.cc/DZVXfjDD/lol.jpg" width="500px">
+          <img src="https://i.pinimg.com/736x/c1/10/83/c11083fcec9e8088fa7c93590849eab4.jpg" width="500px">
 <br>
-             <br>
-        $\textsf{Evisceration    or}$ $\color{#8f0000}{\textsf{ Evi.}}$ $\textsf{scary creature in the woods.}$<br>
-        $\color{#8f0000}{\textsf{16,000}}$ $\textsf{nonhuman entity. HE/IT is okay.}$<br>
-        IMPORTANT: i have <a href="https://www.mayoclinic.org/diseases-conditions/schizoid-personality-disorder/symptoms-causes/syc-20354414">ScPD</a>; i rarely will seek out interaction.<br>
-        $\textsf{youre allowed to talk to me, but i probably wont ever call you a friend.}$<br>
-        $\textsf{on ponytown once in a blue moon.}$<br>
-        <a href="https://rentry.co/evisceration">rentry</a> | <a href="https://rentry.co/doublebarrel">byi</a> | <a href="https://rentry.co/deadbodies">kinlist</a> | <a href="https://pronouns.cc/@0_005">pronouns.cc</a><br>
         <br>
+        <table border="0" align="center">
+    <tr align="center"></tr>
+      <th>
+        your lord and savior, <img src="https://i.postimg.cc/SN1YYLHr/Untitled294-20260924152608.png" width="150px" title="EVISCERATION"><br>
+        address me as HE/IT or your <img src="https://i.postimg.cc/X71BBKtc/Untitled294-20260924152704.png" width="60px" title="LORD"><br>
+        real life god, here on... ponytown.<br>
+        <img src="https://i.postimg.cc/X71BBKtg/Untitled294-20260924152758.png" width="200px" title="JOIN MY CULT TODAY"> only $65.99!<br>
+        <sub>larping, <a href="https://rentry.co/evisceration">click me</a> for actual abt me</sub>
+        </th>
+  </table>
+        <img src="https://i.pinimg.com/1200x/dc/52/cb/dc52cbc9e42a1cdaf68929419ea42b79.jpg" width="500px">
+<br>
       </th>
   </table>
-  <div align="center">
-<details>
-<summary><p align="center">fandoms</p></summary>
-
-<p align="center">M U G E N, Die of Death, Bad Things, Minecraft Horror, Buckshot Fantasy, Scream, SFAWTDE/DAWTDE, ROAM 0120, Homicipher, Postal, Cry of Fear, FAITH: The Unholy Trinity, Slow Damage, Dramatical Murder, Project SEKAI, Vocaloid, Resident Evil, Silent Hill, Yandere Simulator, The Summer Hikaru Died</p>
-
-</details>
-</div>
